@@ -1,0 +1,1 @@
+# 110000-Kazakh-Bible-Sermons-Parallel-Commentaries
